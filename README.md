@@ -1,1 +1,0 @@
-# Maltsev_dop_zadanie
